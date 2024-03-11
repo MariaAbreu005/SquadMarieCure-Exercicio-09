@@ -26,6 +26,6 @@ Divisão e organização entre os exercícios:
 
 4- Renata - Exercicio curso 3;
 
-5- Beatriz - Adicionar um arquivo resumo;
+5- Beatriz & Leticia - Adicionar um arquivo resumo;
 
 
